@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Imran Alam
+# 💫 Hi 👋, I'm Vishal Singh
 **A passionate Full Stack Engineer || QA Engineer || Kafka Admin from India**
 
 Email Me 👉 ✉️ **rajputvishal33t.com** For Collaboration/Project or Anything Else. 😊😊
